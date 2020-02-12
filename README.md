@@ -1,4 +1,13 @@
 # 2020年初奇文共赏
+2020年1月20日
+**环球时报：非典早期晚报瞒报那样的事情，在中国不会重演了**
+
+[环球时报知乎账号](https://zhuanlan.zhihu.com/p/103548640)
+
+[archiv.is](https://archive.is/MkKXf)
+
+[web archive](https://web.archive.org/save/https://zhuanlan.zhihu.com/p/103548640)
+
 2020年02月10日
 
 **人民网评：66.7%与7%的对比，烛照共产党员的初心**
@@ -7,7 +16,7 @@
 
 [archive.is](https://archive.is/HvfQH)
 
-[wayback machine](https://web.archive.org/web/20200212161346/http://opinion.people.com.cn/n1/2020/0210/c223228-31579692.html)
+[web archive](https://web.archive.org/web/20200212161346/http://opinion.people.com.cn/n1/2020/0210/c223228-31579692.html)
 
 2020年02月11日
 
