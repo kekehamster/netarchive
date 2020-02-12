@@ -8,6 +8,15 @@
 
 [web archive](https://web.archive.org/save/https://zhuanlan.zhihu.com/p/103548640)
 
+2020年2月9日
+**驻法大使馆：用团结和胜利告慰李文亮医生**
+
+[原链接](https://archive.is/?run=1&url=http%3A%2F%2Fwww.amb-chine.fr%2Fchn%2Fsgxw%2Ft1742435.htm)
+
+[archive.is](https://archive.is/doX1H)
+
+[web archive](https://web.archive.org/web/20200212171857/http://www.amb-chine.fr/chn/sgxw/t1742435.htm)
+
 2020年02月10日
 
 **人民网评：66.7%与7%的对比，烛照共产党员的初心**
@@ -44,3 +53,5 @@
 [观察者网转载](https://www.guancha.cn/politics/2020_02_12_535828.shtml)
 
 [wayback machine](https://web.archive.org/web/20200212170505/https://www.guancha.cn/politics/2020_02_12_535828.shtml)
+
+注：仅收录官方媒体发文，个人发文暂不收录
